@@ -1,0 +1,3 @@
+- 👋 Hi, I’m collor ;)
+- 👀 I’m interested in books, art, music n games 
+- 🌱 I’m currently learning arts, desing n python
